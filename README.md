@@ -6,8 +6,9 @@
   <a href="https://echosofheliaddotcom.atabook.org/">atabook</a>
 </p>
 
-. the virgin suicides
-
+<p align="right">
+  <i><b>. the virgin suicides </b></i>
+</p>
 <!--
 **lapsnuggles-700vedotcom/lapsnuggles-700vedotcom** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
