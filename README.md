@@ -16,7 +16,7 @@
   <img src="https://s7.ezgif.com/tmp/ezgif-7c30f6e35d1c30ff.gif" width="600"/>
 </p>
 <p align="right">
-  <i><b> ˖ ᡣ𐭩 ⊹ ࣪ sweet dreams, Kokichi. (btw my pony skin) ౨ৎ˚₊ </b></i>
+  <i><b> ˖ ᡣ𐭩 ⊹ ࣪ sweet dreams, Kokichi. ౨ৎ˚₊ </b></i>
 </p> 
 <p align="center"> 
 i love all my online friends. ݁ ˖Ი𐑼⋆
