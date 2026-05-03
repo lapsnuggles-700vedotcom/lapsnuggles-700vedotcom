@@ -1,6 +1,6 @@
 
 <p align="center">
-  <img src="https://i.pinimg.com/1200x/56/49/1a/56491a55b521a3bb86d7e0e205628f66.jpg" width="600"/>
+  <img src="https://i.pinimg.com/originals/d4/dd/91/d4dd91a7b143e56d07e5dfb1dd391e4d.gif" width="600"/>
 </p>
 <p align="right">
   <i><b>You were right in front of me</b></i>
